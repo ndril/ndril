@@ -7,3 +7,5 @@
 <!---
 ndril/ndril is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
+i'm a very simple Guy. Please accept my Own Crypto "TANTRAL " and guide me for next step.
+Humbly, i thank you all for your Genorosity.
